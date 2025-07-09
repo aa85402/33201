@@ -20,4 +20,4 @@
 
 无论你是想回味经典，还是挖掘冷门，这里都是你获取“日本AV免费”资源的首选之地。每天来一点，看片不断更！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/33201 ）</span>
